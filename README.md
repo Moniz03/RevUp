@@ -1,3 +1,3 @@
 # RevUp
 Workshop Certificate
-https://mail.google.com/mail/u/0/?tab=rm&ogbl#inbox?projector=1
+https://drive.google.com/file/d/1-GYOneBDjFNGcY5H2Pjx37xTfQFYg5nV/view?usp=drive_link
